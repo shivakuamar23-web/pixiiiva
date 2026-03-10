@@ -1,2 +1,2 @@
 # pixiiiva
-Hello mada
+i am gay
